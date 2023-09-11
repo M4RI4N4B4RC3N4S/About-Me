@@ -8,7 +8,7 @@ International Baccalaureate Diploma Programme
 2020-2024
 
 ## Career Objective 
-I am a high school student who is interested in pursuing a career in STEM. Throughout my years in highschool, I have worked to improve my leadership and team collaboration skills. I have worked hard to demonstrate leadership in numerous aspects of my life, both inside and outside the classroom. My background as the vise president for Hispanic Honor Society and varsity team player have prepared me to work succesfully. 
+I am a high school student who is interested in pursuing a career in STEM. Throughout my years in highschool, I have worked to improve my leadership and team collaboration skills. I demonstrate leadership both inside and outside the classroom. My background as the vise president for Hispanic Honor Society and varsity team player have prepared me to work succesfully as an individual and as a collective unit. 
 ## Projects
 - Houston Needs - 9th grade
 - Personal Project - 10th grade
