@@ -1,11 +1,9 @@
 # Mariana Barcenas 
 barcemar003@mysbisd.org
 ## Education                                                       
-Westchester Academy for International Students 
+Westchester Academy for International Studies 2020 - 2024
 
 International Baccalaureate Diploma Programme 
-
-2020-2024
 
 ## Career Objective 
 I am a high school student who is interested in pursuing a career in STEM. Throughout my years in highschool, I have worked to improve my leadership and team collaboration skills. I demonstrate leadership both inside and outside the classroom. My background as the vise president for Hispanic Honor Society and varsity team player have prepared me to work succesfully as an individual and as a collective unit. 
